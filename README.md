@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">✨ Coding since 6 years<br>📚 Creativity and passion are the keys that unlock the doors to all dreams.<br>🎯 Goals: it to Advancing and evolving throughout one’s life journey.</p>
+<p align="left">✨ Coding since 2018 years<br>📚 Creativity and passion are the keys that unlock the doors to all dreams.<br>🎯 Goals: it to Advancing and evolving throughout one’s life journey.</p>
 
 ###
 
